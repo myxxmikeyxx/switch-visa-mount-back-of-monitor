@@ -1,1 +1,1 @@
-# Nintendow Switch Holder and Visa Mount to the back of a monitor.
+# Nintendo Switch Holder and Visa Mount to the back of a monitor.
